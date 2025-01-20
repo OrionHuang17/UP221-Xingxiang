@@ -4,7 +4,7 @@ Xingxiang Huang
 
 He/him/his
 
-1st Year Master of Civil and Environmental Engineering
+1st Year Master of *Civil and Environmental Engineering*
 
 Concentrating on *Transportation Engineering*
 ## Course Description and Learning Objectives
