@@ -1,3 +1,5 @@
 # UP221-Xingxiang
 ## Introduction
-sddddd
+Xingxiang Huang
+He/him/his
+1st Year Master of Civil and Environmental Engineering, Transportation Engineering Concentration
